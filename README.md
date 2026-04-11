@@ -1,0 +1,1 @@
+# trades--tj-eckardt-associates-inc
